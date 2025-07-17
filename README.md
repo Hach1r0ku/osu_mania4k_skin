@@ -1,4 +1,2 @@
-These skins collected from Internet.
-Sorted by The Earth-Pigeon-Organization Project.
-Thanks to the developers of these skins.
-Team Link: https://osu.ppy.sh/teams/18097
+A normal Rhythm-Gamer in the Northeastern China
+[size=1500][i][b][s]Jack[/s]   Long Note is the Best![/b][/i][/size]
